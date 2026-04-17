@@ -11,3 +11,14 @@ https://skwaird.gtec.ar/
 http://test5664.kavellewatches.com/
 https://security.takh.ee/
 world-peace-volunteerformath.installgentoo.com
+# for my securly bretheren
+
+## Truffled
+
+https://www.securly.com.northbangkokfc.com
+https://www.securly.com.phi-taiwan.com
+https://www.securly.com.ermestel.com
+https://www.securly.com.fixbigoil.com
+https://www.securly.com.intelligentscada.com
+
+😘😘😘
